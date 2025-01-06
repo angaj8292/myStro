@@ -1,1 +1,1 @@
-# myStro
+# myStro(angaj)
